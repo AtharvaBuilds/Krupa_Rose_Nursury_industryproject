@@ -1,0 +1,1 @@
+# Krupa_Rose_Nursury_industryproject
